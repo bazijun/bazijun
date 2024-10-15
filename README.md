@@ -1,5 +1,5 @@
-# 你好哇 👋
+# Hello Wa 👋
 
-小把子想和你做朋友~
+Xiaobianzi wants to be friends with you~
 
 
