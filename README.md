@@ -1,5 +1,5 @@
 # Hello Wa~ 👋
 
-Xiaobianzi wants to be friends with you~
+Bazer wants to be friends with you~
 
 
